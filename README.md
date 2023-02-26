@@ -1,2 +1,2 @@
 # LAB211
-lab cô năng 
+lab cô Năng 
